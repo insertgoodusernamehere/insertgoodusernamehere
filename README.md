@@ -1,5 +1,5 @@
-Hi im a dumbass
-i like to cod
+Hie iem ay dumbass
+iey lice twoo cod
 mey favureet thiing ees moncroft
 mey goo bomm bomm naew
 bie bie
